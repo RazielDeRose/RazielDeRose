@@ -1,6 +1,3 @@
-# init
-Default Settings
-
 - 🇺🇳 @RazielDeRose a.k.a Revan
 - ™️Fronti Nulla Fides
 - 📡 Fluxin
