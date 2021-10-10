@@ -1,6 +1,6 @@
-- 🇺🇳 @RazielDeRose a.k.a Revan
-- ™️Fronti Nulla Fides
-- 📡 Fluxin
-- 🙊 🙉 🙈 Classic X
+- @RazielDeRose a.k.a Zephyroth
+- Classic X
+- Belle Revé
+- Fluxin
 
-> "Love to Learn & Learn to Love" - Enigma
+>>> "Love to Learn & Learn to Love" - Enigma
